@@ -1,0 +1,1 @@
+# CuteCorin GoldEditionDeluxe
